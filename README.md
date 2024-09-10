@@ -1,6 +1,7 @@
 - 👋 Hi, I’m Sobhan
 - 👨🏻‍💻 Developer
 - 🎸 Guitarist
+
 I love to learn as much as I can
 and never forget to read the books 📚
 
